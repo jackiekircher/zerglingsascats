@@ -1,5 +1,5 @@
 ## zerglingsascats
 
-zerglings going things that cats do.
+zerglings doing things that cats do.
 
 http://zerglingsascats.tumblr.com/
